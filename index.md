@@ -7,5 +7,3 @@
 ![raziqa-khanum-01](https://github.com/skillstation/raziqa/assets/142729262/75a87114-cbe5-432e-aab7-68539f83e4e9)
 
 ![raziqa-khanum-02](https://github.com/skillstation/raziqa/assets/142729262/aa049dff-996b-4622-8cd0-f869a7ccda76)
-
-<img width="595" alt="Frame 1" src="https://github.com/skillstation/raziqa/assets/142729262/a1eddc7b-29e0-479e-948c-ab3bc6bdcf33">
